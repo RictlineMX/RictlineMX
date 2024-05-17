@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning AI　本当に、人工知能は人間の希望、でも、そのことで気つけてくださいね。
 - 💞️ I’m looking to collaborate on Automation process
 - 📫 How to reach me Tline contact
-- 😄 Pronouns: Tenno/Heika/Banzai!! Sen/Cos/Tan/Ark!, and Respect my pronouns ya' f@k!n' bast.... 😋
+- 😄 Pronouns: Tenou/Heika/Banzai!! Sen/Cos/Tan/Ark!, and Respect my pronouns ya' f@k!n' bast.... 😋
 - ⚡ Fun fact: Everything is OK!, 君が代！🌸 本当に　地球では、日本語がもっと綺麗な言語だよねー。
 - 
 <!---
